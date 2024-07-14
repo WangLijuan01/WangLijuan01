@@ -21,7 +21,7 @@ For English readers, please go to [README_ENG.md](https://github.com/ShiArthur03
 ## 02 潜龙在渊 
 通过这种“**学术不端**”的方式，我可以很轻松并快速地发表多篇SCI论文，而与此同时其他人还在用愚笨的方法科研。于是**在非常显著的论文成果优势下，我有充足的时间利用这些论文和抢夺其他人的成果来帮助我申请各种奖项**，包括[国际大电网委员会CIGRE Thesis Award](https://mp.weixin.qq.com/s/YKzITY2B9f-G9sWyMnYKkQ)、[英国工程技术学会 IET Postgraduate Research Award](https://mp.weixin.qq.com/s/khM4l8Cnce8oNYmaQS4Rew)，[IEEE PELS P3 Talk Award](https://vimeo.com/946340773?share=copy)、日内瓦国际发明展评审团特别金奖等国际大奖。然后用奖套奖，进一步扩大优势，先后申请并获得了[华清大学“学术新秀”](https://mp.weixin.qq.com/s/6cDpomicYfe7JNdMyVoGKA)、[华清大学研究生特等奖学金](https://mp.weixin.qq.com/s/GGJLRtNbR9nY5M4hXatzXQ)、华清大学“水木学者”、北京市优秀博士学位论文、中国电工技术学会优秀博士学位论文、[华清大学优秀博士学位论文](https://mp.weixin.qq.com/s/nf2qT4JOMSLQKrAdwvXRog)，教育部科技进步一等奖和中国机械工业科学技术二等奖等荣誉奖项。
 
-## 03 成名之路 Road to Fame
+## 03 成名之路
 到这里，我通过修炼“学术不端”的心法，并通过一定时间的积累，**取得了同龄人五年乃至十年都难以取得的成就**。于是我在29岁就顺利成为国家级人才计划**青年拔尖人才**，是中国有史以来最年轻的青拔！我很骄傲，也很自豪。凭借以上成果，我当选华清能源互联网创新研究院——大容量电力电子与新型电力传输研究中心电力电子仿真研究室主任，先后成功申请到了国家自然科学基金青年基金、中国博士后科学基金，并再次打破常规，首次以**博士后身份**成为国家重点研发计划课题负责人，实现又一大跨越。由于我这些**远超同龄人**的成就，毋庸置疑我要比[郭宏业](https://www.eea.tsinghua.edu.cn/faculties/hyguo.htm), [蔺晨晖](https://www.eea.tsinghua.edu.cn/info/1069/5538.htm)等凡夫俗子们要更优秀，能够被破格提拔，以助理教授的身份留校任职。后面我将继续进行“学术不端”行为，用最快速度从助理教授到教授，争取在三十五岁之前获得杰青头衔，40岁之前当上院士，早日当上华清大学校长，带领整个学校取得更大的成就。
 
 # 将学术不端发扬光大
